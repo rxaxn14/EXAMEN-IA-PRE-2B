@@ -1,0 +1,2 @@
+# EXAMEN-IA-PRE-2B
+EX IA 2b
